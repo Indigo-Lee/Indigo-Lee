@@ -1,6 +1,6 @@
 ## Indigo Lee
 
-Applied Math / Statistics / Financial Economics @ Pomona College | DIII Athlete
+Applied Math, Statistics, and Financial Economics @ Pomona College. DIII Water Polo Athlete.
 
 Incoming trading intern @ DV Trading. Previously software @ Moderation.
 
